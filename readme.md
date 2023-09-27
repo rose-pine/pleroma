@@ -20,7 +20,7 @@
 
 ## Gallery
 
-![image](https://user-images.githubusercontent.com/44733677/162285056-0066d0a1-b365-4e8f-bd85-dee9f15a939d.png)
+![image](https://ralsei-appreciation.club/i/6lk6p.png)
 
 
 ## Thanks to
